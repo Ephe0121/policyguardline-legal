@@ -2,8 +2,8 @@
 
 ## Support channels
 
-- Email: support@policyguardline.com
-- Response target: within 2 business days
+- Email: dnlwjddnjs@gmail.com
+- Response target: within 3 business days
 
 ## What to include in your ticket
 
